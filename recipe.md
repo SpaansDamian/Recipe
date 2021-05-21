@@ -9,3 +9,31 @@
 7. Sieve the flour in a large mixing bowl. Add in the spice and mix. Make a well in the middle and add in the milk and use a whisk and mix well so there are no lumps.
 8. Add ½ tsp of neutral tasting oil to a medium to large (30cm) non-stick pan and wipe lightly with kitchen paper to remove any excess oil. Put on a high heat. When hot, reduce to a medium heat, use a ladle or large serving spoon to add approx 60ml or roughly quarter of the batter to the pan. Use the base of the ladle to spread the batter quickly and lightly around the pan to nearly cover it and make a thin pancake. Cook for 2 mins per side, using a spatula (we like to use a silicon one) to release and turn your pancake. Repeat until you have 4 bigger or 6 smaller pancakes – you can keep warm in a preheated 100 C oven if needed.
 9. Heat up the channa masala and with the dosa and enjoy!
+
+____
+
+## Ingredients;
+* 2 x 400g tin chickpea
+* 2 x 400g tin chopped tomatoes
+* 1 large or 2 small red onion – 250g
+* 2 large or 3 medium cloves garlic
+* ½ thumb size piece of ginger – 12g
+* 1.5 tbsp oil
+* 1 tbsp garam masala
+* 1 tsp chilli powder
+* 1 tbsp ground cumin
+* 1 tbsp ground coriander
+* 1 tsp turmeric
+* ½ tsp cinnamon
+* ½ tsp black pepper
+* 1 tsp salt
+* 50 g Fresh spinach
+* Small bunch fresh coriander 15g
+* Dosa; 4-6 pancakes
+* 100 g Chickpea flour
+* 200 ml Oat milk or Water
+* 1 Tbsp sunflower oil
+* ½ tsp ground cumin
+* ½ tsp ground coriander
+* ½ tsp garlic powder
+* ½ tsp salt
